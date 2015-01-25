@@ -1,0 +1,1 @@
+[Před pěti lety chodila většina postižených dětí do speciálních tříd. Dnes je poměr opačný](http://www.rozhlas.cz/zpravy/data/_zprava/pred-peti-lety-chodila-vetsina-postizenych-deti-do-specialnich-trid-dnes-je-pomer-opacny--1446186)
